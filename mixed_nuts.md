@@ -3,7 +3,7 @@
 ## Ingredients
 - peanuts
 - salt
-- oil
+- oil (olive)
 
 ## Instructions
 
